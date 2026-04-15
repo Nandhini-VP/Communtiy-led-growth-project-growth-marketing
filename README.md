@@ -127,4 +127,3 @@ Content was added progressively — one expert at a time, with structured update
 
 **Nandhini VP**  
 📧 nandhinivp2003@gmail.com  
-🔗 https://github.com/Nandhini-VP/Growth-Marketing-Setup  
