@@ -2,9 +2,7 @@
 
 ## Post 1: Building authentic community experiences
 
-**Date:** 2026  
-
-**URL:** https://www.linkedin.com/posts/carriemelissajones_clg-activity-7439797610086895616-ugq_  
+**Link:** https://www.linkedin.com/posts/carriemelissajones_clg-activity-7439797610086895616-ugq_  
 
 **Quote:** "This is how we build antifragile, abundant communities"  
 
@@ -14,11 +12,9 @@ Strong communities are built through intentional experiences that focus on purpo
 **My Take:**  
 This shows that community-led growth depends on quality of interaction, not just scale. Creating meaningful experiences helps build deeper relationships, which leads to stronger and more sustainable communities.
 
-## Post 2: Supporting community builders
+## Post 2: Supporting community builders 
 
-**Date:** 2026  
-
-**URL:** https://www.linkedin.com/posts/carriemelissajones_community-builders-and-program-leaders-i-activity-7432443021461245953-q07n  
+**Link:** https://www.linkedin.com/posts/carriemelissajones_community-builders-and-program-leaders-i-activity-7432443021461245953-q07n  
 
 **Quote:** "Community builders and program leaders need support too"  
 
@@ -30,9 +26,7 @@ This highlights that strong communities depend on strong community leaders. In C
 
 ## Post 3: Common mistakes in community building
 
-**Date:** 2026  
-
-**URL:** https://www.linkedin.com/posts/carriemelissajones_the-biggest-mistake-i-see-in-community-building-activity-7430347690531696640-8gd4  
+**Link:** https://www.linkedin.com/posts/carriemelissajones_the-biggest-mistake-i-see-in-community-building-activity-7430347690531696640-8gd4  
 
 **Quote:** "The biggest mistake I see in community building..."  
 
