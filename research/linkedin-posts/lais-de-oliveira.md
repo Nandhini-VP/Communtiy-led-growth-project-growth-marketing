@@ -2,7 +2,7 @@
 
 ## Post 1: Community as a driver of innovation
 
-**URL:** https://www.linkedin.com/posts/laisdeoliveira_the-most-innovative-companies-working-on-activity-7442295296216190976-dk8y  
+**Link:** https://www.linkedin.com/posts/laisdeoliveira_the-most-innovative-companies-working-on-activity-7442295296216190976-dk8y  
 
 **Quote:** "The most innovative companies are building with community"  
 
@@ -14,7 +14,7 @@ This shows that community-led growth also supports product development. When use
 
 ## Post 2: Community-led growth in practice
 
-**URL:** https://www.linkedin.com/posts/laisdeoliveira_field-notes-community-led-growth-in-the-activity-7443322205309976577-yZVl  
+**Link:** https://www.linkedin.com/posts/laisdeoliveira_field-notes-community-led-growth-in-the-activity-7443322205309976577-yZVl  
 
 **Quote:** "Community-led growth in the wild"
 
@@ -26,7 +26,7 @@ This shows that CLG is evolving from theory to execution. Companies are testing 
 
 ## Post 3: Community leadership and influence 
 
-**URL:** https://www.linkedin.com/posts/laisdeoliveira_when-people-ask-me-who-is-the-greatest-community-activity-7448042539624001536-LEsg  
+**Link:** https://www.linkedin.com/posts/laisdeoliveira_when-people-ask-me-who-is-the-greatest-community-activity-7448042539624001536-LEsg  
 
 **Quote:** "Community leadership goes beyond roles and titles"  
 
